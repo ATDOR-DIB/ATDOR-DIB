@@ -2,6 +2,6 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning stuff
 - 💞️ I’m looking to collaborate on work-stuff
-- 📫 How to reach me ...
+- 📫 How to reach me messenger pigeon
 - 😄 Pronouns: -
 - ⚡ Fun fact: ...
